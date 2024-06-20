@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil 🌻 *OLÁ*
+### Boas vindas ao meu perfil 🌻
 
 Meu nome é Renata Aparecida
 
